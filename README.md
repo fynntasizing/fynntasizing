@@ -6,3 +6,4 @@ hihi! u can call me fynn or nyx!! feel free to C+H and int! (unless on dni)
 w2i pls! :3 / thankuu! 
 
 
+idk
